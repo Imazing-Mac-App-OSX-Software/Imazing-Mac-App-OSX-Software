@@ -1,0 +1,1 @@
+# Imazing-Mac-App-OSX-Software
